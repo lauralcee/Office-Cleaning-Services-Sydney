@@ -1,6 +1,2 @@
 # Office Cleaning Services Sydney
-Here are a few of the cleaning tasks you can expect from a professional [office cleaning services Sydney](https://ozapcs.com.au/service/office-cleaning-sydney/):
-Empty trash cans and replace trash bags.
-Vacuum carpets and mats, including entrance mats.
-Mop wood and other hard floors.
-Dust and damp wipe horizontal surfaces like desks, tables, and other furniture.
+Regular professional [office cleaning services Sydney](https://ozapcs.com.au/service/office-cleaning-sydney/) that includes dusting, vacuuming, mopping and other cleaning can improve the health of your work environment as it reduces the presence of bacteria, germs, and allergens in the workplace.
